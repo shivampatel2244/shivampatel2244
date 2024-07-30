@@ -19,7 +19,7 @@
 
 - 📫 How to reach me **shivampatel635272@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/16ETdRV_PzFuUh1bwLVhAj7Fet4Ri9yNI/view?usp=sharing](https://drive.google.com/file/d/16ETdRV_PzFuUh1bwLVhAj7Fet4Ri9yNI/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1rAJ7oa1aZN7NKRU5xRD2_4t_WglB7KNM/view?usp=drive_link](https://drive.google.com/file/d/1rAJ7oa1aZN7NKRU5xRD2_4t_WglB7KNM/view?usp=drive_link)
 
 - ⚡ Fun fact **It’s not a bug; it’s an undocumented feature.**
 
